@@ -1,6 +1,6 @@
 # **UND COLLUSION est. 2010**
 
-### Current Champion ***Swarles Barkley***
+### Current Champion:  ***Swarles Barkley***
 
-##### *corndog dale has won the most Dong Shulas*
+##### *corndog dale is once again the current Dong Shulas*
 
