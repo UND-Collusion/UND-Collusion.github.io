@@ -14,15 +14,9 @@
       - Whatever Random other things i can think of. 
 
 ### Teams that havent won
-    1) ~Fear Boners~
-    2) ~~Ponder in the Butt~~
-    3) ~~Rommate of the Master Blaster~~
-    4) ~~Dad?~~
-    5) ~~Swarles Barkley~~
-    6) ~~The Revolution~~
-    7) The Humongous Melonheads
-    8) Team WhoTheFisSteven
-    9) Detective Darkness
-    10) Poop aka Uncle Jimmy
-    11) Retief Goose is on the Loose
-    12) Corndog Dale
+    * The Humongous Melonheads
+    * Team WhoTheFisSteven
+    * Detective Darkness
+    * Poop aka Uncle Jimmy
+    * Retief Goose is on the Loose
+    * Corndog Dale
