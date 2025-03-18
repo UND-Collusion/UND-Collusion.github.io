@@ -13,7 +13,8 @@
 ##### *Corndog Dale is once again the current Dong Shula*
 
 # **UPDATES TO THE SITE COMING AS SOON!!!**
-      + Currently Learning on the fly how to code. So this may take a little bit of time
+      + Currently Learning on the fly how to code. 
+      + So this may take a little bit of time
             +Things Im looking to add
                   + Cleaner Look with links and tables
                   + League Rules
