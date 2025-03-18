@@ -2,6 +2,14 @@
 
 ### Current Champion:  ***Swarles Barkley***
 
+### Past Champions: 
+      + Fear Boners 2010
+      + Ponder in the Butt 2011/2014
+      + Roommate of the Master Blaster 2013/2016
+      + Dad? 2017/2018/2020
+      + Swarkes Barkley 2019/2023/2024
+      + The Revolution 2021/2022
+
 ##### *Corndog Dale is once again the current Dong Shula*
 
 # **UPDATES TO THE SITE COMING AS SOON!!!**
