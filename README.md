@@ -5,7 +5,7 @@
 ##### *Corndog Dale is once again the current Dong Shula*
 
 # **UPDATES TO THE SITE COMING AS SOON!!!**
- Currently Learning on the fly how to code. So this may take a little bit of time
+  #### Currently Learning on the fly how to code. So this may take a little bit of time
     - Things Im looking to add
       - League Rules
       - League History
@@ -14,7 +14,7 @@
       - Whatever Random other things i can think of. 
 
 ### Teams that havent won
-    1) ~~ Fear Boners ~~
+    1) ~Fear Boners~
     2) ~~Ponder in the Butt~~
     3) ~~Rommate of the Master Blaster~~
     4) ~~Dad?~~
