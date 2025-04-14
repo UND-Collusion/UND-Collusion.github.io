@@ -5,6 +5,8 @@
 ##### *Corndog Dale is once again the current Dong Shula*
 <a href="LeagueRules.html">League Rules</a>
 
+<a href="TeamManagers.html">Team Managers</a>
+
 # **UPDATES TO THE SITE COMING AS SOON!!!**
       + Currently Learning on the fly how to code. 
       + So this may take a little bit of time
